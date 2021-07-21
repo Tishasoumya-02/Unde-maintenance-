@@ -2,4 +2,4 @@
 
 Template for site-maintenance. :construction: :wrench:
 
-https://tishasoumya-02.github.io/Unde-maintenance-/
+https://bit.ly/2VVRtom
